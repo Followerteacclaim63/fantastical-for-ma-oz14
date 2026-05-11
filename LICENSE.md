@@ -1,4 +1,4 @@
-#  
+#  smart Fantastical for macOS Script | AI assistant + cloud backup is the best Fantastical for macOS script, featuring AI assistant and cloud backup. Safe, efficient, and optimized
 
 
 
